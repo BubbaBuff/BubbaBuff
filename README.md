@@ -1,8 +1,8 @@
 -Hey hey, I'm Bubba Buff, but you can call me V. 
 
-I collect figurines, manga, and comics, I love anime and cartoons, i also train service dogs!
+I collect figurines, manga, and comics, and all sorts of things 
 
-Studing to be a character designer!! I love to share/ do art trades (as long as they are SFW). If intrested send me a whisper hehe. 
+Studing to be a character designer and/or an archivist. 
 
 I don't really care for shipping so long as it isnt problematic, or fetished...you get the point
 
