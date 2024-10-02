@@ -6,7 +6,7 @@ Studing to be a character designer and/or an archivist.
 
 I don't really care for shipping so long as it isnt problematic, or fetished...you get the point
 
--INT PLEASE!!: Naruto fans, cosplayers, artists, Hellsing fans, Samurai X fans, DMC, Inuyasha, Creepypasta, FNAF, 
+-INT PLEASE!!: Naruto fans, Bleach Fans, cosplayers, artists, Hellsing fans, Samurai X fans, DMC, Inuyasha, Creepypasta, FNAF, 
 Metalheads, Music Fans in general, Goths (lets be vampires 2gether), fanfiction writers, ICE NINE KILLS FANS!!
 
 -DNI: Basic DNI, Vivziepop supporters, proshippers, Victim Blamers, UNDER 11, 
