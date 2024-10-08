@@ -4,7 +4,7 @@ I collect figurines, manga, and comics, and all sorts of things
 
 Studing to be a character designer and/or an archivist. 
 
-I don't really care for shipping so long as it isnt problematic, or fetished...you get the point
+I don't really care for shipping so long as it isnt problematic, or fetished, etc...
 
 -INT PLEASE!!: Naruto fans, Bleach Fans, cosplayers, artists, Hellsing fans, Samurai X fans, DMC, Inuyasha, Creepypasta, FNAF, 
 Metalheads, Music Fans in general, Goths (lets be vampires 2gether), fanfiction writers, ICE NINE KILLS FANS!!
