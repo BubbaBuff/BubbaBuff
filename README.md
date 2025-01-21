@@ -1,5 +1,3 @@
-I like to draw and will 10000% draw something for ya
-
    Pls draw on my strawpage and Ill draw on yrs. 
 
 PFP by CATZ.ONMARZ on TIKTOK
