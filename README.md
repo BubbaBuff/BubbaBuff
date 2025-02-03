@@ -1,4 +1,4 @@
-   Pls draw on my strawpage and Ill draw on yrs. 
+   Pls draw on my strawpage or sign my atabook. 
 
 PFP by CATZ.ONMARZ on tiktok 
 ![indra_otsutsuki__yin__render_by_dp1757_dd31t90-fullview](https://github.com/user-attachments/assets/e2e306de-a406-4767-93a1-cb54fc606681)
